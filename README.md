@@ -3,7 +3,6 @@
 - ❤️ instagram : lekhanag_2403
 - 💙 twitter   : lekhanag_2403
 - 🖤 discord   : Lekhanag#3052
-- 💚 whatsapp  : +91 8106104497
 
 <!---
 lekhanag-kondaveeti/lekhanag-kondaveeti is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
