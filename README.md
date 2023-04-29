@@ -1,5 +1,5 @@
-- 👋 reach me on :
-- Mail      : lekhanagkondaveeti@gmail.com
+- 👋
+- lekhanagkondaveeti@gmail.com
 - instagram : lekhanag_2403
 - twitter   : lekhanag_2403
 - discord   : Lekhanag#3052
