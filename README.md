@@ -1,6 +1,7 @@
-- 👋
-- lekhanagkondaveeti@gmail.com
-- instagram : lekhanag_2403
+- 👋 hey there!
+- you can reach me from here:
+- mail : lekhanagkondaveeti@gmail.com
+- linkedin : https://www.linkedin.com/in/lekhanagkondaveeti/
 - twitter   : lekhanag_2403
 - discord   : Lekhanag#3052
 
